@@ -1,1 +1,0 @@
-# nudo-estelar
